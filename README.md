@@ -1,1 +1,1 @@
-I really like music and programming and its great when  I do both
+music and programming go together dont you think?
